@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://www.canva.com/design/DAFUKesDZuM/0hVYrhPcKRc8H686hHppHA/edit?utm_content=DAFUKesDZuM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFUKesDZuM/0hVYrhPcKRc8H686hHppHA/edit?utm_content=DAFUKesDZuM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-- ⚡ Fun fact **Coders live to code and code for others to live**
+- No matter how smart you think you are, you're not as smart as the hacker in the room, and they're not the type to let you forget that. They know you need them, and they know you'll just have to stand there and take a few insults, because what are you going to do? Find a better hacker? Good luck with that.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
